@@ -12,3 +12,10 @@ He is looking for the Dark Tower, the linchpin of the space-time continuum. >_<
 * Last Gunslinger
 * Dark Tower
 * Ka, Ka-Tet, Khef 
+
+
+> "I do not kill with my gun,
+> he who kills with his guns
+> as forgotten the face of his father...
+
+> I kill with my heart."
