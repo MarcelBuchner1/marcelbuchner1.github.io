@@ -19,3 +19,5 @@ He is looking for the Dark Tower, the linchpin of the space-time continuum. >_<
 > as forgotten the face of his father...
 
 > I kill with my heart."
+
+<img scr="https://i.pinimg.com/originals/4a/65/a5/4a65a58e1871e82ae76e9b652f51f36f.jpg"/>
